@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on multimedia art  developmet 
 - 📫 How to reach me send me an email
 - 
- Buenos Aires-argentina-2023
+ Buenos Aires-argentina-2023- github con las mejores prestaciones
  
  
 <!---
